@@ -1,2 +1,2 @@
-Création du MotherFuckingWebsite !
+Création du BetterMotherFuckingWebsite !
 
